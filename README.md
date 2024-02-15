@@ -52,6 +52,20 @@
 
 ![Thread the 180cm](photo/photo_16.jpg)
 
-- The top left petal has been completed.
+- The top left petal has been completed!
 
 ![Thread the 180cm](photo/photo_17.jpg)
+
+- Next, we will be making the top right petal.
+- The method of making it is the same as before!
+- The ⚪ cotton rope presses down on the 🔵 cotton rope, then emerges from underneath the 🔵 cotton rope, then pull tight.
+
+![Thread the 180cm](photo/photo_18.jpg)
+
+- Conversely, the ⚪ cotton rope comes out from under the 🔵 cotton rope, then presses on top of the 🔵 cotton rope, then pull tight.
+
+![Thread the 180cm](photo/photo_19.jpg)
+
+- The top right petal will then also be completed!
+
+![Thread the 180cm](photo/photo_20.jpg)
