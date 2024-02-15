@@ -1,6 +1,5 @@
-# Macrame Workshop Instructions
+# Hi! 👋 Welcome to Macrame Workshop Instructions
 
-## Hi! 👋 Welcome to my project!
 ![Macrame Flower Keychain](photo/photo_1.jpg)
 
 Today, we're going to make this Macrame Flower Keychain 🌸! Here are the materials you'll need to prepare:
