@@ -41,10 +41,10 @@
 - Take the 100cm 🟡 cotton rope and thread it through the hole formed by the ⚪ cotton rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_13.jpg)
+![Thread the 180cm](photo/photo_14.jpg)
 
 - Making the top left petal.
 
-![Thread the 180cm](photo/photo_14.jpg)
 ![Thread the 180cm](photo/photo_15.jpg)
 ![Thread the 180cm](photo/photo_16.jpg)
 ![Thread the 180cm](photo/photo_17.jpg)
