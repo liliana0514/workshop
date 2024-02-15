@@ -18,4 +18,10 @@
 
 ### Step 1: Connecting to the Metal Clasps
 - Thread the 180cm ⚪ cotton rope through the Metal Clasps.
-![Thread the 180cm](photo/photo_4.png)
+
+![Thread the 180cm](photo/photo_4.jpg)
+
+- 2 full square knots.
+
+![Thread the 180cm](photo/photo_5.jpg)
+![Thread the 180cm](photo/photo_6.jpg)
