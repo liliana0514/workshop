@@ -1,4 +1,4 @@
-# Hi! 👋 Welcome to Macrame Workshop Instructions
+# Hi! 👋 Welcome to Macrame Workshop
 
 ![Macrame Flower Keychain](photo/photo_1.jpg)
 
