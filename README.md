@@ -11,7 +11,7 @@
 ---
 
 
-### The making of the Macrame Flower Keychain can be divided into the following five steps:
+### Macrame Flower Keychain can be divided into five steps:
 ![five steps](photo/photo_3.jpg)
 ---
 
@@ -25,3 +25,7 @@
 
 ![Thread the 180cm](photo/photo_5.jpg)
 ![Thread the 180cm](photo/photo_6.jpg)
+![Thread the 180cm](photo/photo_7.jpg)
+![Thread the 180cm](photo/photo_8.jpg)
+![Thread the 180cm](photo/photo_9.jpg)
+![Thread the 180cm](photo/photo_10.jpg)
