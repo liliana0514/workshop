@@ -70,7 +70,9 @@
 ![Thread the 180cm](photo/photo_24.jpg)
 
 #### 2-5: Making the bottom left petal.
-
+![Thread the 180cm](photo/photo_25.jpg)
+![Thread the 180cm](photo/photo_26.jpg)
+![Thread the 180cm](photo/photo_27.jpg)
 #### 2-6: Making the bottom right petal.
 
 #### 2-7: Making the bottom.
