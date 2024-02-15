@@ -8,5 +8,5 @@
 - 1 pc of 180cm PETALS (WHITE) ⚪
 - 1 pc of 100cm CENTER (YELLOW) 🟡
 
-### The making of the Macrame Flower Keychain can be divided into the following FIVE steps:
-![materials](photo/photo_1.jpg)
+### The making of the Macrame Flower Keychain can be divided into the following five steps:
+![five steps](photo/photo_2.jpg)
