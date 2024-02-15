@@ -138,6 +138,6 @@
 ![Repeating](photo/photo_49.jpg)
 ![Repeating](photo/photo_50.jpg)
 
-- For detailed instructions, please refer to steps 2 and 3.
+- For detailed instructions, please refer to [step 2](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#2-making-the-petals---youtube-tutorial-video-054-325) and [step 3](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#3-making-the-stalk---youtube-tutorial-video-333-403).
 
 ### 5: Finishing the Keychain
