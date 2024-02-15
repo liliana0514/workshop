@@ -33,7 +33,7 @@
 ---
 
 
-### 2: Making the petals - [YouTube tutorial video (0:54-0:)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+### 2: Making the petals - [YouTube tutorial video (0:54-3:25)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 #### 2-1: Making the top layer of petals.
 
 ![top layer](photo/photo_11.jpg)
@@ -94,3 +94,17 @@
 ![bottom rightpetal](photo/photo_34.jpg)
 
 #### 2-7: Making the bottom.
+
+![bottom](photo/photo_35.jpg)
+![bottom](photo/photo_36.jpg)
+
+- The bottom petal has been completed!
+
+![bottom](photo/photo_37.jpg)
+
+### 3: Making the stalk - [YouTube tutorial video (3:33-0:)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+
+![stalk](photo/photo_38.jpg)
+![stalk](photo/photo_39.jpg)
+![stalk](photo/photo_40.jpg)
+![stalk](photo/photo_41.jpg)
