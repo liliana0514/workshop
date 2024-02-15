@@ -16,7 +16,8 @@
 ---
 
 
-### 1: Connecting to the Metal Clasps - <a href="https://www.youtube.com/watch?v=YourVideoID" target="_blank">YouTube tutorial video (0:18-0:52)</a>
+### 1: Connecting to the Metal Clasps -  [YouTube tutorial video (0:18-0:52)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+
 - Thread the 180cm ⚪ cotton rope through the Metal Clasps.
 
 ![Thread the 180cm](photo/photo_4.jpg)
@@ -32,7 +33,7 @@
 ---
 
 
-### 2: Making the petals - YouTube tutorial video (0:54-)
+### 2: Making the petals - [YouTube tutorial video (0:54-0:)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 #### 2-1: Making the top layer of petals.
 
 ![Thread the 180cm](photo/photo_11.jpg)
@@ -71,6 +72,10 @@
 ![Thread the 180cm](photo/photo_20.jpg)
 
 #### 2-4: Making the center.
+![Thread the 180cm](photo/photo_21.jpg)
+![Thread the 180cm](photo/photo_22.jpg)
+![Thread the 180cm](photo/photo_23.jpg)
+![Thread the 180cm](photo/photo_24.jpg)
 
 #### 2-5: Making the bottom left petal.
 
