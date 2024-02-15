@@ -21,7 +21,7 @@
 
 ![Thread the 180cm](photo/photo_4.jpg)
 
-- 2 full square knots.
+- Take the 150cm 🔵 cotton rope and make 2 full square knots.
 
 ![Thread the 180cm](photo/photo_5.jpg)
 ![Thread the 180cm](photo/photo_6.jpg)
@@ -29,3 +29,15 @@
 ![Thread the 180cm](photo/photo_8.jpg)
 ![Thread the 180cm](photo/photo_9.jpg)
 ![Thread the 180cm](photo/photo_10.jpg)
+---
+
+
+### Step 2: Making the petals
+- Making the top layer of petals.
+
+![Thread the 180cm](photo/photo_11.jpg)
+![Thread the 180cm](photo/photo_12.jpg)
+
+- Take the 100cm 🟡 cotton rope and thread it through the hole formed by the ⚪ cotton rope.
+
+![Thread the 180cm](photo/photo_13.jpg)
