@@ -20,59 +20,63 @@
 
 - Thread the ⚪ rope through the Metal Clasps.
 
-![Thread the 180cm](photo/photo_4.jpg)
+![Metal Clasps](photo/photo_4.jpg)
 
 - Take the 🔵 rope and make 2 full square knots.
 
-![Thread the 180cm](photo/photo_5.jpg)
-![Thread the 180cm](photo/photo_6.jpg)
-![Thread the 180cm](photo/photo_7.jpg)
-![Thread the 180cm](photo/photo_8.jpg)
-![Thread the 180cm](photo/photo_9.jpg)
-![Thread the 180cm](photo/photo_10.jpg)
+![full square knots](photo/photo_5.jpg)
+![full square knots](photo/photo_6.jpg)
+![full square knots](photo/photo_7.jpg)
+![full square knots](photo/photo_8.jpg)
+![full square knots](photo/photo_9.jpg)
+![full square knots](photo/photo_10.jpg)
 ---
 
 
 ### 2: Making the petals - [YouTube tutorial video (0:54-0:)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 #### 2-1: Making the top layer of petals.
 
-![Thread the 180cm](photo/photo_11.jpg)
-![Thread the 180cm](photo/photo_12.jpg)
+![top layer](photo/photo_11.jpg)
+![top layer](photo/photo_12.jpg)
 
 - Take the 🟡 rope and thread it through the hole formed by the ⚪ rope, then pull tight.
 
-![Thread the 180cm](photo/photo_13.jpg)
-![Thread the 180cm](photo/photo_14.jpg)
+![top layer](photo/photo_13.jpg)
+![top layer](photo/photo_14.jpg)
 
+- The top petal has been completed!
 #### 2-2: Making the top left petal.
 
-![Thread the 180cm](photo/photo_15.jpg)
-![Thread the 180cm](photo/photo_16.jpg)
+![top left petal](photo/photo_15.jpg)
+![top left petal](photo/photo_16.jpg)
+![top left petal](photo/photo_17.jpg)
 
 - The top left petal has been completed!
 
-![Thread the 180cm](photo/photo_17.jpg)
+![top left petal](photo/photo_18.jpg)
 
 #### 2-3: Making the top right petal.
 - The method of making it is the same as before!
 
-![Thread the 180cm](photo/photo_18.jpg)
-![Thread the 180cm](photo/photo_19.jpg)
+![top right petal](photo/photo_19.jpg)
+![top right petal](photo/photo_20.jpg)
+![top right petal](photo/photo_21.jpg)
 
-- The top right petal will then also be completed!
+- The top right petal has been completed!
 
-![Thread the 180cm](photo/photo_20.jpg)
+![top right petal](photo/photo_22.jpg)
 
 #### 2-4: Making the center.
-![Thread the 180cm](photo/photo_21.jpg)
-![Thread the 180cm](photo/photo_22.jpg)
-![Thread the 180cm](photo/photo_23.jpg)
-![Thread the 180cm](photo/photo_24.jpg)
+![center](photo/photo_23.jpg)
+![center](photo/photo_24.jpg)
+![center](photo/photo_25.jpg)
+![center](photo/photo_26.jpg)
 
 #### 2-5: Making the bottom left petal.
-![Thread the 180cm](photo/photo_25.jpg)
-![Thread the 180cm](photo/photo_26.jpg)
-![Thread the 180cm](photo/photo_27.jpg)
+![bottom left petal](photo/photo_27.jpg)
+![bottom left petal](photo/photo_28.jpg)
+![bottom left petal](photo/photo_29.jpg)
+
 #### 2-6: Making the bottom right petal.
 
 #### 2-7: Making the bottom.
