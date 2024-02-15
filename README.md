@@ -22,7 +22,8 @@
 ---
 
 
-### 1: Connecting to the Metal Clasps -  [YouTube tutorial video (0:18-0:52)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+### 1: Connecting to the Metal Clasps
+- [YouTube tutorial video (0:18-0:52)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 
 - Thread the ⚪ rope through the Metal Clasps.
 
@@ -39,7 +40,8 @@
 ---
 
 
-### 2: Making the petals - [YouTube tutorial video (0:54-3:25)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+### 2: Making the petals
+- [YouTube tutorial video (0:54-3:25)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 #### 2-1: Making the top layer of petals.
 
 ![top layer](photo/photo_11.jpg)
@@ -108,7 +110,8 @@
 
 ![bottom](photo/photo_37.jpg)
 
-### 3: Making the stalk - [YouTube tutorial video (3:33-4:03)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+### 3: Making the stalk 
+- [YouTube tutorial video (3:33-4:03)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 
 - You can make a varying number of stalks based on your own preference; this example involves making two stalks.
 - First stalk.
@@ -140,4 +143,5 @@
 
 - For detailed instructions, please refer to [step 2](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#2-making-the-petals---youtube-tutorial-video-054-325) and [step 3](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#3-making-the-stalk---youtube-tutorial-video-333-403).
 
-### 5: Finishing the Keychain
+### 5: Finishing the Keychain 
+- [YouTube tutorial video (3:33-4:03)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
