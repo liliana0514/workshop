@@ -70,6 +70,9 @@
 ![center](photo/photo_23.jpg)
 ![center](photo/photo_24.jpg)
 ![center](photo/photo_25.jpg)
+
+- The center has been completed!
+
 ![center](photo/photo_26.jpg)
 
 #### 2-5: Making the bottom left petal.
@@ -77,6 +80,17 @@
 ![bottom left petal](photo/photo_28.jpg)
 ![bottom left petal](photo/photo_29.jpg)
 
+- The bottom left petal has been completed!
+
+![bottom left petal](photo/photo_30.jpg)
+
 #### 2-6: Making the bottom right petal.
+![bottom right petal](photo/photo_31.jpg)
+![bottom right petal](photo/photo_32.jpg)
+![bottom rightpetal](photo/photo_33.jpg)
+
+- The bottom right petal has been completed!
+
+![bottom rightpetal](photo/photo_34.jpg)
 
 #### 2-7: Making the bottom.
