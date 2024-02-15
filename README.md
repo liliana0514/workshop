@@ -102,9 +102,36 @@
 
 ![bottom](photo/photo_37.jpg)
 
-### 3: Making the stalk - [YouTube tutorial video (3:33-0:)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+### 3: Making the stalk - [YouTube tutorial video (3:33-4:03)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+
+- You can make a varying number of stalks based on your own preference; this example involves making two stalks.
+- First stalk.
 
 ![stalk](photo/photo_38.jpg)
 ![stalk](photo/photo_39.jpg)
+
+- Second stalk.
+
 ![stalk](photo/photo_40.jpg)
+
+- The stalk has been completed!
+
 ![stalk](photo/photo_41.jpg)
+
+### 4: Repeating the making of petals and stalk
+
+- Repeat steps 2 and 3 until you reach the desired length.
+
+![Repeating](photo/photo_42.jpg)
+![Repeating](photo/photo_43.jpg)
+![Repeating](photo/photo_44.jpg)
+![Repeating](photo/photo_45.jpg)
+![Repeating](photo/photo_46.jpg)
+![Repeating](photo/photo_47.jpg)
+![Repeating](photo/photo_48.jpg)
+![Repeating](photo/photo_49.jpg)
+![Repeating](photo/photo_50.jpg)
+
+- For detailed instructions, please refer to steps 2 and 3.
+
+### 5: Finishing the Keychain
