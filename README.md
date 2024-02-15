@@ -45,12 +45,8 @@
 ![Thread the 180cm](photo/photo_14.jpg)
 
 #### 2-2: Making the top left petal.
-- The ⚪ rope presses down on the 🔵 rope, then emerges from underneath the 🔵 rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_15.jpg)
-
-- Conversely, the ⚪ rope comes out from under the 🔵 rope, then presses on top of the 🔵 rope, then pull tight.
-
 ![Thread the 180cm](photo/photo_16.jpg)
 
 - The top left petal has been completed!
@@ -59,12 +55,8 @@
 
 #### 2-3: Making the top right petal.
 - The method of making it is the same as before!
-- The ⚪ rope presses down on the 🔵 rope, then emerges from underneath the 🔵 rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_18.jpg)
-
-- Conversely, the ⚪ rope comes out from under the 🔵 rope, then presses on top of the 🔵 rope, then pull tight.
-
 ![Thread the 180cm](photo/photo_19.jpg)
 
 - The top right petal will then also be completed!
