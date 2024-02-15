@@ -3,8 +3,8 @@
 ![Macrame Flower Keychain](photo/photo_1.jpg)
 ---
 ### Here are the materials you'll need to prepare:
-- 1 pc of **150cm** stalk (BLUE) 🔵
 - 1 pc of **180cm** petals (WHITE) ⚪
+- 1 pc of **150cm** stalk (BLUE) 🔵
 - 1 pc of **100cm** center (YELLOW) 🟡
 
 ![materials](photo/photo_2.jpg)
@@ -38,6 +38,13 @@
 ![Thread the 180cm](photo/photo_11.jpg)
 ![Thread the 180cm](photo/photo_12.jpg)
 
-- Take the 100cm 🟡 cotton rope and thread it through the hole formed by the ⚪ cotton rope.
+- Take the 100cm 🟡 cotton rope and thread it through the hole formed by the ⚪ cotton rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_13.jpg)
+
+- Making the top left petal.
+
+![Thread the 180cm](photo/photo_14.jpg)
+![Thread the 180cm](photo/photo_15.jpg)
+![Thread the 180cm](photo/photo_16.jpg)
+![Thread the 180cm](photo/photo_17.jpg)
