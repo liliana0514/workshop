@@ -144,4 +144,10 @@
 - For detailed instructions, please refer to [step 2](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#2-making-the-petals---youtube-tutorial-video-054-325) and [step 3](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#3-making-the-stalk---youtube-tutorial-video-333-403).
 
 ### 5: Finishing the Keychain 
-- [YouTube tutorial video (3:33-4:03)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+
+- [YouTube tutorial video (5:16-)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+
+- Repeat steps 2 and 3 until you reach the desired length, then trim the cotton rope to the ideal length.
+![Finishing](photo/photo_51.jpg)
+
+- Congratulations on completing your Macrame Flower Keychain!🌸
