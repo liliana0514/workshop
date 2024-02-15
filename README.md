@@ -145,7 +145,7 @@
 
 ### 5: Finishing the Keychain 
 
-- [YouTube tutorial video (5:16-)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
+- [YouTube tutorial video (5:16-5:31)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 
 - Repeat steps 2 and 3 until you reach the desired length, then trim the cotton rope to the ideal length.
 ![Finishing](photo/photo_51.jpg)
