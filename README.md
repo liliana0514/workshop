@@ -16,7 +16,7 @@
 ---
 
 
-### 1: Connecting to the Metal Clasps -  YouTube tutorial video (0:18-0:52)
+### 1: Connecting to the Metal Clasps -  [YouTube tutorial video (0:18-0:52)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 - Thread the 180cm ⚪ cotton rope through the Metal Clasps.
 
 ![Thread the 180cm](photo/photo_4.jpg)
