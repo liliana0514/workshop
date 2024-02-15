@@ -4,9 +4,9 @@
 
 ### Here are the materials you'll need to prepare:
 
-- 1 pc of 150cm STALK (BLUE) 🔵
-- 1 pc of 180cm PETALS (WHITE) ⚪
-- 1 pc of 100cm CENTER (YELLOW) 🟡
+- 1 pc of **150cm** "stalk" (BLUE) 🔵
+- 1 pc of **180cm** "petals" (WHITE) ⚪
+- 1 pc of **100cm** "center" (YELLOW) 🟡
 
 ### The making of the Macrame Flower Keychain can be divided into the following five steps:
 ![five steps](photo/photo_2.jpg)
