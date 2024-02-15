@@ -33,7 +33,7 @@
 
 
 ### Step 2: Making the petals - YouTube tutorial video (0:54-)
-- Making the top layer of petals.
+#### Step 2-1: Making the top layer of petals.
 
 ![Thread the 180cm](photo/photo_11.jpg)
 ![Thread the 180cm](photo/photo_12.jpg)
@@ -43,7 +43,7 @@
 ![Thread the 180cm](photo/photo_13.jpg)
 ![Thread the 180cm](photo/photo_14.jpg)
 
-- Making the top left petal.
+#### Step 2-2: Making the top left petal.
 - The ⚪ cotton rope presses down on the 🔵 cotton rope, then emerges from underneath the 🔵 cotton rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_15.jpg)
@@ -56,7 +56,7 @@
 
 ![Thread the 180cm](photo/photo_17.jpg)
 
-- Next, we will be making the top right petal.
+#### Step 2-3: Making the top right petal.
 - The method of making it is the same as before!
 - The ⚪ cotton rope presses down on the 🔵 cotton rope, then emerges from underneath the 🔵 cotton rope, then pull tight.
 
@@ -69,3 +69,11 @@
 - The top right petal will then also be completed!
 
 ![Thread the 180cm](photo/photo_20.jpg)
+
+#### Step 2-4: Making the center.
+
+#### Step 2-5: Making the bottom left petal.
+
+#### Step 2-6: Making the bottom right petal.
+
+#### Step 2-7: Making the bottom.
