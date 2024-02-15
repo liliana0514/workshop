@@ -18,11 +18,11 @@
 
 ### 1: Connecting to the Metal Clasps -  [YouTube tutorial video (0:18-0:52)](https://www.youtube.com/watch?v=AGhiYfnpfYA)
 
-- Thread the 180cm ⚪ cotton rope through the Metal Clasps.
+- Thread the ⚪ rope through the Metal Clasps.
 
 ![Thread the 180cm](photo/photo_4.jpg)
 
-- Take the 150cm 🔵 cotton rope and make 2 full square knots.
+- Take the 🔵 rope and make 2 full square knots.
 
 ![Thread the 180cm](photo/photo_5.jpg)
 ![Thread the 180cm](photo/photo_6.jpg)
@@ -39,17 +39,17 @@
 ![Thread the 180cm](photo/photo_11.jpg)
 ![Thread the 180cm](photo/photo_12.jpg)
 
-- Take the 100cm 🟡 cotton rope and thread it through the hole formed by the ⚪ cotton rope, then pull tight.
+- Take the 🟡 rope and thread it through the hole formed by the ⚪ rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_13.jpg)
 ![Thread the 180cm](photo/photo_14.jpg)
 
 #### 2-2: Making the top left petal.
-- The ⚪ cotton rope presses down on the 🔵 cotton rope, then emerges from underneath the 🔵 cotton rope, then pull tight.
+- The ⚪ rope presses down on the 🔵 rope, then emerges from underneath the 🔵 rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_15.jpg)
 
-- Conversely, the ⚪ cotton rope comes out from under the 🔵 cotton rope, then presses on top of the 🔵 cotton rope, then pull tight.
+- Conversely, the ⚪ rope comes out from under the 🔵 rope, then presses on top of the 🔵 rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_16.jpg)
 
@@ -59,11 +59,11 @@
 
 #### 2-3: Making the top right petal.
 - The method of making it is the same as before!
-- The ⚪ cotton rope presses down on the 🔵 cotton rope, then emerges from underneath the 🔵 cotton rope, then pull tight.
+- The ⚪ rope presses down on the 🔵 rope, then emerges from underneath the 🔵 rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_18.jpg)
 
-- Conversely, the ⚪ cotton rope comes out from under the 🔵 cotton rope, then presses on top of the 🔵 cotton rope, then pull tight.
+- Conversely, the ⚪ rope comes out from under the 🔵 rope, then presses on top of the 🔵 rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_19.jpg)
 
