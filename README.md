@@ -44,7 +44,14 @@
 ![Thread the 180cm](photo/photo_14.jpg)
 
 - Making the top left petal.
+- The ⚪ cotton rope presses down on the 🔵 cotton rope, then emerges from underneath the 🔵 cotton rope, then pull tight.
 
 ![Thread the 180cm](photo/photo_15.jpg)
+
+- Conversely, the ⚪ cotton rope comes out from under the 🔵 cotton rope, then presses on top of the 🔵 cotton rope, then pull tight.
+
 ![Thread the 180cm](photo/photo_16.jpg)
+
+- The top left petal has been completed.
+
 ![Thread the 180cm](photo/photo_17.jpg)
