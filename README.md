@@ -3,6 +3,8 @@
 ![Macrame Flower Keychain](photo/photo_1.jpg)
 ---
 ### Here are the materials you'll need to prepare:
+- Colors can be changed according to your own preference; below, the colors ⚪🔵🟡 are used as an example.
+
 - 1 pc of **180cm** petals (WHITE) ⚪
 - 1 pc of **150cm** stalk (BLUE) 🔵
 - 1 pc of **100cm** center (YELLOW) 🟡
