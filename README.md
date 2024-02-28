@@ -14,9 +14,9 @@
 
 
 ### Macrame Flower Keychain can be divided into five steps:
-- [1. Connecting to the Metal Clasps](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#1-connecting-to-the-metal-clasps----youtube-tutorial-video-018-052)
-- [2. Making the petals](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#2-making-the-petals---youtube-tutorial-video-054-325)
-- [3. Making the stalk](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#3-making-the-stalk---youtube-tutorial-video-333-403)
+- [1. Connecting to the Metal Clasps](https://github.com/liliana0514/workshop?tab=readme-ov-file)
+- [2. Making the petals](https://github.com/liliana0514/workshop?tab=readme-ov-file)
+- [3. Making the stalk](https://github.com/liliana0514/workshop?tab=readme-ov-file)
 - [4. Repeating the making of petals and stalk](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#4-repeating-the-making-of-petals-and-stalk)
 - [5. Finishing the Keychain](https://github.com/liliana0514/workshop/tree/main?tab=readme-ov-file#5-finishing-the-keychain)
 
